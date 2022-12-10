@@ -25,11 +25,7 @@ Python ReportBot.py
 
 
 
+Edit:- this repo stopped working on march 2022 ! So if you want to use it you have to buy the api !    
 
 
-
-
-
-Join my group for activation code.  :--- https://chat.whatsapp.com/I9SNUEKj5Dn4WCpN0cQtNS
-
-
+Messege me on WhatsApp to buy api to use it life time :- wa.me/+91070790578
