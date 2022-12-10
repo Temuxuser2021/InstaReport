@@ -29,3 +29,4 @@ Edit:- this repo stopped working on march 2022 ! So if you want to use it you ha
 
 
 Messege me on WhatsApp to buy api to use it life time :- wa.me/+91070790578
+  Price is :-250 for heroku api users. And 480 for railway api user. 
